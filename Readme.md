@@ -1,2 +1,1 @@
-HQ is currently not available but
-Will not be available from 8am today.  
+HQ is currently available until 9pm tonight.
